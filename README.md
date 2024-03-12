@@ -1,4 +1,5 @@
-#  🤗Um pouqinho sobre mim.
+#  🤗Um pouqinho sobre mim. 
+
 😉 Sou uma pessoa bem hiperativa 🔋;<br>🎧 Curto escutar musica,  e estudar 📚;<br>⌚ No tempo vago curto ficar na internet🌍;<br>✈ E minha meta é viajar para o Japão ⛩, ou estados Unidos🗽 ;<br>😊Gosto de Dias Chuvosos ☔ ou bem frios ☃.<br>
 
 ---
