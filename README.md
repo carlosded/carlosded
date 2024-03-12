@@ -26,7 +26,7 @@
 
 ###
 
-<img align="left" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="left" height="150" src="![9b4e431a2f834b64a93836cd5afb5790](https://github.com/carlosded/carlosded/assets/61881725/8618033e-397e-4147-9de6-e7b7fbf1d6df)"  />
 
 ###
 
